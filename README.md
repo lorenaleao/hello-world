@@ -14,3 +14,9 @@ I even wrote a [little thing](https://github.com/girls-support-girls/survival-gu
 ### btw, [this](https://www.ted.com/talks/reshma_saujani_teach_girls_bravery_not_perfection?utm_campaign=tedspread&utm_medium=referral&utm_source=tedcomshare) TED Talk by Reshma Saujani is ___amazing!___
 
 > “We need to make it safe for girls to fail." YES, DESPERATELY!!!
+
+### albums.
+
+* Melhor do Que Parece, O Terno [[ ... ]](https://open.spotify.com/album/7nf6cMzbnj1BqhY5VBwT16)
+* <atrás/além>, O Terno [[ ... ]](https://open.spotify.com/album/5RHNy7sIVDOcLTsz4OeiwL)
+* Pearl, Rubel [[ ... ]](https://open.spotify.com/album/25fli8PlxpP10WpirvDpMT)
