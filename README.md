@@ -7,7 +7,7 @@ Hi there! Lorena here. This is a place where I will store some ideas, resources,
 
 > “We have to begin to undo the socialization of perfection, but we've got to combine it with building a sisterhood that lets girls know that they are not alone. Because trying harder is not going to fix a broken system.” -- Reshma Saujani, the founder of Girls Who Code, at her "Teach girls bravery, not perfection" TED Talk.
 
-I am part of this awesome group called [Girls Support Girls](https://github.com/girls-support-girls), which is an initiative of students from the Department of Computer Science at UFMG, and we have created a survival guide for the freshmen at our university, [take a look](https://github.com/girls-support-girls/survival-guide/wiki) ;)
+I am part of this awesome group called [Girls Support Girls](https://github.com/girls-support-girls), which is an initiative of students from the Department of Computer Science (DCC, the acronym in Portuguese) at UFMG, and we have created a survival guide for the freshmen at our university, [take a look](https://github.com/girls-support-girls/survival-guide/wiki) ;)
 
 I even wrote a [little thing](https://github.com/girls-support-girls/survival-guide/wiki/Caso-voc%C3%AA-esteja-entrando-em-p%C3%A2nico) over there! :sparkles: hehe
 
@@ -21,3 +21,7 @@ I even wrote a [little thing](https://github.com/girls-support-girls/survival-gu
 * <atrás/além>, O Terno [[ ... ]](https://open.spotify.com/album/5RHNy7sIVDOcLTsz4OeiwL)
 * Pearl, Rubel [[ ... ]](https://open.spotify.com/album/25fli8PlxpP10WpirvDpMT)
 * Amelie from Montmartre, Yann Tiersen [[ ... ]](https://open.spotify.com/album/3QMOVTfwazGKLvyLq41pyV)
+
+### the 100 best things in the world.
+
+[Fernando](https://homepages.dcc.ufmg.br/~fernando/), who is a great professor and researcher at UFMG, inspired me to make my _100 best things in the world_'s list. [This](https://homepages.dcc.ufmg.br/~fernando/classes/dcc024/ementa/pofs/100coisas.html) is his. You can read mine [here](https://github.com/lorenaleao/hello-world/blob/master/as100melhorescoisasdomundo.md) (it's still a work in progress. in fact, I think it will always be changed from time to time ;). 
