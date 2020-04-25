@@ -1,6 +1,6 @@
 # As 100 melhores coisas do mundo
 
-* aproveitar músicas que eu gosto e ainda mais descobrir músicas que tocam a minha alma, os meus pés, as minhas mãos (eu não sei descrever esse sentimento, mas é incrível o que a música faz ás vezes com o meu ser, eu fico mais alegre e feliz, in a good mood, só por causa disso. a sensação é muito boa)
+* aproveitar músicas que eu gosto e ainda mais descobrir músicas que tocam a minha alma, os meus pés, as minhas mãos (eu não sei descrever esse sentimento, mas é incrível o que a música faz ás vezes com o meu ser, eu fico mais alegre e feliz, in a _good mood_, só por causa disso. a sensação é muito boa)
 
 * dançar 
 
