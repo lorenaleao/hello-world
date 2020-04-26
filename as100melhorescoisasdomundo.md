@@ -32,3 +32,27 @@ esses dias de solzão + frio são os mais gostosos que há :)
 * explorar novos lugares!!!!!!!! que-eu-possa-ser-abençoada-com-a-graça-de-poder-viajar-muito-ainda-na-minha-vida-por-favor-nunca-te-pedi-nada-universo
 
 * comer coxinha de presunto e queijo (de todos os tamanhos) (a do sô antônio é muito boa, scrr)
+
+* chorar vendo séries!!!!!!! (THIS IS US TT-TT)
+
+* caféeeeeeeeeee
+
+* capuccino cremoso!!! 🤤🤤
+
+* pizza no café da manhã
+
+* laughing til it hurts/i cry
+
+* QUEEEEEEIJO MINAAAS (com doce de leite ou goiabada ++ café)
+
+* aulas com o fernando, o ambiente e as pessoas do lac
+
+* professores maravilhosos!!!!!!!!!!!!! (eu tive tannnnntos e sou tão grata por tê-los conhecido que meu coração chega a doer <3
+
+* aulas da adriana (sociologia), do candão (inglês), da cidinha (artes), do marcelo sevaybricker (filosofia), da bárbara (literatura), todos professores do cefet
+
+* o ensino médio no cefet (aaaaaaaaaaa <3 <3 <3) -- ter tido um grupo de amigas tão especial, ter acesso a educação de qualidade e professores mtmtmtmt bons fizeram do meu ensino médio uma aventura incrível, eu me reconstruí e me construí, me descobri, me aceitei, me curei, aprendi com novas perspectivas de gente muito diferente de mim, com outras histórias, foi uma experiência formadora pra mim, muito rica e importante ^^
+
+* bebês fofos :333333333333
+
+* bixinhos fofos
