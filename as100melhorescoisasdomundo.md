@@ -56,3 +56,11 @@ esses dias de solzão + frio são os mais gostosos que há :)
 * bebês fofos :333333333333
 
 * bixinhos fofos
+
+* ver a carinha fofa do tomaz, infelizmente :p
+
+* pastel portuguêeeeeeeeeeeeeeees do tio fabiano 🤤🤤🤤🤤
+
+* milho quente com manteiga minhanossasinhora!
+
+* flutuar no mar :)
